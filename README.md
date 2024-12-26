@@ -67,7 +67,7 @@ Hi, I’m **Aviram Weisberg** – a **tech-driven professional** who bridges the
 ## 🌟 Fun Facts  
 
 - 🏊‍♂️ **Competitive Swimmer** and proud member of the **LGBTQ+ Sports Club Israel**.  
-- 🪖 Former Reserve Officer in **Operations & Intelligence**, IDF Northern Command.  
+- 🪖 Active Reserve Officer in **Operations & Intelligence**, IDF Northern Command.  
 - 🎨 Passionate about combining **creativity and technology** to make learning and work processes smarter, clearer, and more engaging.  
 
 ---
